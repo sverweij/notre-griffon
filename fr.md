@@ -36,7 +36,7 @@ cette œvre remarquable.
 
 ## Azor aveugle.
 "Ayez pité d'un pauvre aveugle?"
-- "Certainement, mon vieil Azor;
+ - "Certainement, mon vieil Azor;
 tenez voilà deux sous pour vous,"
 dit en passant le riche César.
 
@@ -88,9 +88,9 @@ et firent ... ouah ! ouah ! ouah ! avec admiration
 Notre Griffon leur dit,
 tout rempli d'indulgence
 pour ces pauvres petits;
-- Regardez-moi, mes envants!
+ - Regardez-moi, mes envants!
 
-- "Ce n'est pas défendu
+ - "Ce n'est pas défendu
 et je vous le permets.
 Vous voudriez peut-être
 savoir comment je fais
