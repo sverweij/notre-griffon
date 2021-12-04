@@ -1,53 +1,58 @@
-## Onze griffioen!
+## Ons griffioentje!
 
-Onze Griffon is geweldig,
-maar onze kat is meer;
+```
+Ons griffioentje is geweldig,
+maar onze kat is ook nog iets anders;
 hij is een charmante kapper,
 van zeldzame vaardigheid,
-mijn woord!
+echt waar!
 
 Het scheurt niet meer
 veertig haren
 aan de mensen die hij kamt:
 het is niet veel!
 
-Onze Groffon heeft snorren
+Ons griffioentje heeft snorren
 als een oude soldaat,
-Nou, onze kat zet ze
-cosmetica met zijn tong,
+Nou, onze kat maakt ze
+op met zijn tong,
 waarna ze spikes hebben
 als bliksemafleiders!
 Dus alle voorbijgangers zeggen:
-wanneer onze Griffon loopt:
+wanneer ze ons Griffioentje zien:
  - "Deze hond is prachtig gekleed,
-het is ongetwijfeld een hond van de hele grote wereld?"
+het is echt een hond van de wereld!"
+```
 
+## Het griffioentjesportret
 
-## Het griffioenportret
-
-Onze Griffon is geverfd
-door een groot kunstenaar lid van het Instituut.
+```
+Ons Griffioentje is geschilderd
+door een groot kunstenaar - een lid van het Instituut.
 U ziet dit portret op de Salon,
 Dit jaar. De kunstenaar nam
-olie of boter kleuren,
-Ik weet het niet meer, te doen
-dit opmerkelijke werk.
+olieverf - of was het nou boterverf?
+Ik weet het niet meer,
+om dit opmerkelijke werk te maken.
+```
 
+## De Blinde Azor.
 
-## Blind Azor.
+```
 'Heb medelijden met een arme blinde?'
  - "Zeker, mijn oude Azor;
 hier is twee cent voor jou, "
 zei de rijke Caesar terloops.
 
 Maar, oude Azor, voegde Caesar eraan toe,
-je zou een man moeten inhuren
-om u te rijden en om
-om je kom in je mond te stoppen?
-
+zou je niet een man moeten inhuren
+om je te laten rijden en om
+je kom in je mond te stoppen?
+```
 
 ## Russische bergen
 
+```
 De afdaling is duizelingwekkend!
 Maar helaas, het is erg leuk.
 De wind rolt onze oren op,
@@ -55,7 +60,7 @@ want we gaan in een razend tempo!
 Houd vol, kameraden!
 Naar voren! naar voren! Ja, maar daar ga je
 die arme Tom die achterblijft!
-
+```
 
 ## Op de tennisbaan
 Het was een beroemd spel;
