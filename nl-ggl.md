@@ -16,7 +16,7 @@ Ons griffioentje heeft snorren
 als een oude soldaat,
 Nou, onze kat maakt ze
 op met zijn tong,
-waarna ze spikes hebben
+waarna ze punten hebben
 als bliksemafleiders!
 Dus alle voorbijgangers zeggen:
 wanneer ze ons Griffioentje zien:
@@ -30,7 +30,7 @@ het is echt een hond van de wereld!"
 Ons Griffioentje is geschilderd
 door een groot kunstenaar - een lid van het Instituut.
 U ziet dit portret op de Salon,
-Dit jaar. De kunstenaar nam
+Dit jaar. De kunstenaar gebruikte
 olieverf - of was het nou boterverf?
 Ik weet het niet meer,
 om dit opmerkelijke werk te maken.
@@ -54,11 +54,13 @@ je kom in je mond te stoppen?
 
 ```
 De afdaling is duizelingwekkend!
-Maar helaas, het is erg leuk.
+Maar het is ook erg leuk.
 De wind rolt onze oren op,
 want we gaan in een razend tempo!
 Houd vol, kameraden!
-Naar voren! naar voren! Ja, maar daar ga je
+Naar voren! naar voren! 
+
+Ja, maar daar ga je
 die arme Tom die achterblijft!
 ```
 
