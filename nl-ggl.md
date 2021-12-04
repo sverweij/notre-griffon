@@ -1,68 +1,61 @@
-## Ons griffioentje!
+## Onze griffioen!
 
-```
-Ons griffioentje is geweldig,
-maar onze kat is ook nog iets anders;
+Onze Griffon is geweldig,
+maar onze kat is meer;
 hij is een charmante kapper,
 van zeldzame vaardigheid,
-echt waar!
+mijn woord!
 
 Het scheurt niet meer
 veertig haren
 aan de mensen die hij kamt:
 het is niet veel!
 
-Ons griffioentje heeft snorren
+Onze Groffon heeft snorren
 als een oude soldaat,
-Nou, onze kat maakt ze
-op met zijn tong,
-waarna ze punten hebben
+Nou, onze kat zet ze
+cosmetica met zijn tong,
+waarna ze spikes hebben
 als bliksemafleiders!
 Dus alle voorbijgangers zeggen:
-wanneer ze ons Griffioentje zien:
+wanneer onze Griffon loopt:
  - "Deze hond is prachtig gekleed,
-het is echt een hond van de wereld!"
-```
+het is ongetwijfeld een hond van de hele grote wereld?"
 
-## Het griffioentjesportret
 
-```
-Ons Griffioentje is geschilderd
-door een groot kunstenaar - een lid van het Instituut.
+## Het griffioenportret
+
+Onze Griffon is geverfd
+door een groot kunstenaar lid van het Instituut.
 U ziet dit portret op de Salon,
-Dit jaar. De kunstenaar gebruikte
-olieverf - of was het nou boterverf?
-Ik weet het niet meer,
-om dit opmerkelijke werk te maken.
-```
+Dit jaar. De kunstenaar nam
+olie of boter kleuren,
+Ik weet het niet meer, te doen
+dit opmerkelijke werk.
 
-## De Blinde Azor.
 
-```
+## Blind Azor.
 'Heb medelijden met een arme blinde?'
  - "Zeker, mijn oude Azor;
 hier is twee cent voor jou, "
 zei de rijke Caesar terloops.
 
 Maar, oude Azor, voegde Caesar eraan toe,
-zou je niet een man moeten inhuren
-om je te laten rijden en om
-je kom in je mond te stoppen?
-```
+je zou een man moeten inhuren
+om u te rijden en om
+om je kom in je mond te stoppen?
+
 
 ## Russische bergen
 
-```
 De afdaling is duizelingwekkend!
-Maar het is ook erg leuk.
+Maar helaas, het is erg leuk.
 De wind rolt onze oren op,
 want we gaan in een razend tempo!
 Houd vol, kameraden!
-Naar voren! naar voren! 
-
-Ja, maar daar ga je
+Naar voren! naar voren! Ja, maar daar ga je
 die arme Tom die achterblijft!
-```
+
 
 ## Op de tennisbaan
 Het was een beroemd spel;
