@@ -1,10 +1,10 @@
 ## Ons griffioentje!
 
 ```
-Ons griffioentje is geweldig,
-maar onze kat is ook nog iets anders;
-hij is een charmante kapper,
-van zeldzame vaardigheid,
+Ons griffioentje is geweldig.
+Onze kat is dat ook, maar die is nog iets anders;
+hij is een charmante kapper
+met een zeldzame vaardigheid,
 echt waar!
 
 Meer dan veertig haren
